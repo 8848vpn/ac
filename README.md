@@ -1,11 +1,17 @@
-这是提供给用户下载软件的appstore账户，任选以下的账户，如果全都不能用请联系管理员
+这是提供给用户下载软件的appstore账户，任选以下的账户，如果全都不能用请联系管理员,会在三天内更新
 
-账号：guqws24@163.com 密码：Qw112211 
+zb1989054@sina.com----Zu112211 
 
-账号：maq2225@163.com 密码：Qw112211 
 
-账号：ddnn39@163.com 密码：Qw112211 
+yyq19900222@sina.com----Zu112211 
 
-账号：oaugac@163.com 密码：Qw112211 
 
-账号：w6gqz3@163.com 密码：Qw112211 
+zgt30923@sina.com----Zu112211 
+
+
+yzh103@sina.com----Zu112211 
+
+
+huaxiaedu_a@sina.com----Zu112211
+
+
