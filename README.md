@@ -1,18 +1,20 @@
 这是提供给用户下载软件的appstore账户，任选以下的账户，如果全都不能用请联系管理员,会在三天内更新
 
 
-a593001477@163.com 
+l465639038@163.com 
 Ch112211 
 
-duxiaoli1985163@163.com 
+cmfu820129@163.com 
 Ch112211 
 
-a174165155@163.com 
+lch11622009@163.com 
 Ch112211 
 
-a454526871@163.com 
+chenlin.le@163.com 
 Ch112211 
 
-hanbeimama@163.com 
-Ch112211
+chencne123@163.com 
+Ch112211 
+
+
 
